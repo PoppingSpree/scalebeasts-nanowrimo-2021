@@ -35,3 +35,4 @@ The two brought their scooters to a casual pace along the pavement, side by side
 
 [[If there are other characters we want to showcase (Bee? Wifi? Get Bonus?) now might be a good time to have them show up and give off a general vibe and short desc before we encounter them proper. If we have Bee and Wifi here, that only gives them one day lead time to go exploring prior the assessments and whatnot for FP and HR to be assigneed to tracking her down.]]
 
+[[Editing long texts is kind of a pain on Discord, but I need to go back and fill in each one of those Sections with the Actual Prose so writing the whole thing directly in the Discord text box isn't looking feasible. I'll figure out the workflow as I go, but for the time being I'm just yeeting stuff into github and copying over the relevant bits to the channel.]]
