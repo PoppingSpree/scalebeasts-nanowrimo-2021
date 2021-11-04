@@ -2,7 +2,7 @@
 
 "Dibs on this one." With little hesitation, Hard Reset unplugged a firey red scooter from the set and promptly strattled the seat.
 
-First Post made looked back and forth between a blue scooter with bright sparkly yellow stars on it, and a purple scooter with magenta stripes. She giggled at Reset's pace. "Always with the red. You love red, don't you?"
+First Post looked back and forth between a blue scooter with bright sparkly yellow stars on it, and a purple scooter with magenta stripes. She giggled at Reset's pace. "Always with the red. You love red, don't you?"
 "No." A snappy answer. Their head tilted moments later. "I don't know. It just feels right?" First Post reached behind the blue scooter, grasping the power connection. "Actually," Reset continued, "I prefer blue. My shells are always blue."
 
 Seemingly having changed her mind at the last second, First Post pounced back once, and then sprung again right onto the seat of the purple stripey scooter. She leaned back and disconnected the charging cable with a hind leg and tucked it onto the hook on the wall. Then she leaned forward, reached for the power switch, and turned the scooter on. Reset turned theirs on as well.
