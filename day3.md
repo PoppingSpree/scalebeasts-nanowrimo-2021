@@ -15,6 +15,6 @@ First Post dismounted.
 
 "Uh. Sure, take what you need, we're done with these for the day. Right?" 
 
-She turned to Hard Rest for confirmation. They nodded.
+She turned to Hard Rest for confirmation. They started to shrug, then nodded.
 
 "Certainy, that's what they're for. Just return them when you're done." Hard Reset tilted their gaze at the canine hanger-on. "Is everything OK?"
