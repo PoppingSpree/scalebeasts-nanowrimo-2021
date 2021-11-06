@@ -1,0 +1,7 @@
+[[Description for The Sphere and Lance. Lahti/Gale now works as a counterpart replacement for her Jakkai counterpart. In the more silly Yohz Hylan counterpart, she is replaced by a Squee counterpart of her Jakkai iteration. In either case, Rally is probably best left as a Squee]]
+
+Warm, bright, and friendly, the Sphere and Lance is a shop that was clearly not built to accomdate the size of Squee. Heavily polsihed wooden floors and walls shine, creating mirrored images of the decor and displays. The number of isles of shelves to browse through is modest, but the woman at the counter is cheery and welcoming.
+
+The counter is relatively large for the establishment, built into an extended L cut forming almost a cup of space. The front display of it is glass, and the top of the counter in spaots is either glass or wood. Various signs all around the store indicate discounts on pary planning services, bonus incentives for ordering large balloon bundles in bulk, and additional niche services that are available for those of particular interest.
+
+The room is filled with a variety of balloon displays all over, all of which for sale as-is or already sold and ready to deploy for celebration. The balloon arrangement to her right (viewers left) in particular is a set of golden metallic balloons, creamy off-white balloons, sharp lemony yellow balloons, and the occasional green or black jewel-tone balloon all arranged in a spiraling vertical column.
