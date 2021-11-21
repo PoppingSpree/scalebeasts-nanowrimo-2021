@@ -1,6 +1,12 @@
 
 SCALEBEA.STS#0777
-    0. Pepper Asterisk “Commander in Chief”
+    0. Pepper Asterisk 
+    “Command Advisor Honoree”
+    Cell Asterisk
+    [Refsheet Link]
+    [Youtube Link]
+    A splotchy short and stout white and black quadruped lizardy Squee Helibuster. One of the few that wears bottoms- usually black shorts or a black skirt- in addition to the top. Bottom-heavy and sharp clawed. Floppy short ears and eyes much the same as there were before she was remade as a Squee or Squee Helibuster.
+    Originally born as a GUNS native with a feline Glimmer, a birth defect saw her with a permentantly youthful stature and a shortened expected lifespan. Through the interevention of her romantic partner Jam, she had her body remade in the image of her favorite cartoon bunny-like critters. Later, as her violent streak and tendency towards manipulating others became more apparent, her body was upgrded into the first Squee Helibuster. Her revelry in the corruption and manipulation of others is well known and frequently derided. However, her role in the creation of the Squee and her direct influence over the others who most contributed to the creation of their kind results in some seects of the Squee populace honring her like a parent, and others revering her like a god. This contributed heavily to the early fragmentation of Squee settlements and will continue to be a divisive point for any formalized Squee organization for as long as she lives. (If not longer.)
     1. Last Chance “Forbidden Scalebeast”
         1. Title: 
         2. Unit: 
